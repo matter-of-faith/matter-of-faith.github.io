@@ -53,6 +53,11 @@ navbar_entries:
 #     url: https://www.humangous.co
 #     desc: The better people know you, the better they collaborate
 
+entries:
+  - title: Post-Indo Missions Reflection
+    url: Post-Indo-Missions-Reflection
+    post_list: true
+
 footer_entries:
   - title: Google Scholar
     url: https://scholar.google.com/citations?hl=en&user=BBSpwokAAAAJ&view_op=list_works&sortby=pubdate
