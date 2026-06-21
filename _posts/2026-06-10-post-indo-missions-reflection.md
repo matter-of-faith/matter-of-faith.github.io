@@ -1,7 +1,7 @@
-
 ---
+title: A cloud of witnesses -- some thoughts after my Indonesia mission trip
 layout: post
-author: Abhinav Saxena
+author: Stephen Quiton
 tags: [overview, moonwalk]
 ---
 
