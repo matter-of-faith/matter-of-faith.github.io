@@ -1,8 +1,8 @@
 ---
-title: A cloud of witnesses -- some thoughts after my Indonesia mission trip
+title: A cloud of witnesses -- some thoughts after Indonesia missions
 layout: post
 author: Stephen Quiton
 tags: [ministry, missions, calling]
 ---
 
-This is a test. 
+I recently went on miss
