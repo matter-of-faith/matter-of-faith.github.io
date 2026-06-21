@@ -18,7 +18,7 @@ At least, that was the best way I could describe it at the time. It didn't just 
 It was such a strange, confusing emotion for me to process, so I mainly kept quiet to myself about it until I came to a state of being able to articulate to someone else at a reasonable level. Eventually, I talked about it with my team leader (to whom I am very thankful for letting me rant incoherently). On hearing what I had felt at the time, they shared passage that I've seldom paid attention to up until this point
 
 
->Hebrews 12:1–3
+> Hebrews 12:1–3
 >
 >Jesus, Founder and Perfecter of Our Faith
 >
@@ -29,4 +29,6 @@ It was such a strange, confusing emotion for me to process, so I mainly kept qui
 >[3] Consider him who endured from sinners such hostility against himself, >so that you may not grow weary or fainthearted. (ESV)
 
 
-That series of emotions I felt—sympathy, pity and anger turning into determination—is what 
+That series of emotions I felt—sympathy, pity and anger turning into determination—is what it means to be surrounded by that great cloud of witnesses in verse 1. The Indonesian ministry, with their stories of faith and perseverance amidst hostility, was witnessing to me. That anger and pity I felt for them and the subsequent motivation to not waste my life was the Holy Spirit ministering to me, breathing life into me again, reminding me to never lose heart and to keep moving forward.
+
+I feel like I've largely lived my life (even my walk with God) in ways that look like I'm trying to pick myself up by the bootstraps. I try to motivate myself to live for God, but at some point, my own strength and ability to understand God runs out. I get tired, on the verge of giving up. But then I meet someone else, someone unbridledly on fire for Him. And suddenly, that fire spreads to me, and I want to live unbridledly on fire for Him too.
