@@ -22,7 +22,7 @@ It was such a strange, confusing emotion for me to process, so I mainly kept qui
 >
 >Jesus, Founder and Perfecter of Our Faith
 >
->[1] Therefore, since we are surrounded by so great a cloud of witnesses, >let us also lay aside every weight, and sin which clings so closely, and >let us run with endurance the race that is set before us, [2] looking to >Jesus, the founder and perfecter of our faith, who for the joy that was >set before him endured the cross, despising the shame, and is seated at >the right hand of the throne of God.
+>[1] Therefore, since we are surrounded by so great a cloud of witnesses let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, [2] looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God.
 >
 >Do Not Grow Weary
 >
