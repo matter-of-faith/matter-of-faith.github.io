@@ -6,7 +6,7 @@ tags: [ministry, missions]
 dropcap: true
 ---
 
-I recently went on a 10-day mission trip to Indonesia. This post is not meant to be an extensive summary of the trip, but to focus on a specific concept that was revealed to me throughout the 10 days I was there.
+Recently, I went on short-term missions Indonesia. This post is not meant to be an extensive summary of the trip, but to focus on a specific concept that was revealed to me throughout the 10 days I was there.
 
 For those who might be unaware, Indonesia is a predominantly Muslim country. Although you are allowed to identify as a Christian, and though you are able to be part of a church, there still exists substantial persecution towards Christians. This persecution redoubles if said Christians begin to share the gospel and proselytize to Muslims. As one can probably imagine, many missionaries (and their ministries) in this country are under constant persecution. Thus, one of my greatest privileges of going on this trip was getting to know Christians who live in this country who dedicate their lives to making Christ known. 
 
