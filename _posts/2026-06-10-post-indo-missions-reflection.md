@@ -1,5 +1,5 @@
 ---
-title: A cloud of witnesses – some thoughts after Indonesia missions
+title: A cloud of witnesses — some thoughts after Indonesia missions
 layout: post
 author: Stephen Quiton
 tags: [ministry, missions]
@@ -17,14 +17,16 @@ At least, that was the best way I could describe it at the time. It didn't just 
 
 It was such a strange, confusing emotion for me to process, so I mainly kept quiet to myself about it until I came to a state of being able to articulate to someone else at a reasonable level. Eventually, I talked about it with my team leader (to whom I am very thankful for letting me rant incoherently). On hearing what I had felt at the time, they shared passage that I've seldom paid attention to up until this point
 
-```
-Hebrews 12:1–3
 
-Jesus, Founder and Perfecter of Our Faith
+>Hebrews 12:1–3
+>
+>Jesus, Founder and Perfecter of Our Faith
+>
+>[1] Therefore, since we are surrounded by so great a cloud of witnesses, >let us also lay aside every weight, and sin which clings so closely, and >let us run with endurance the race that is set before us, [2] looking to >Jesus, the founder and perfecter of our faith, who for the joy that was >set before him endured the cross, despising the shame, and is seated at >the right hand of the throne of God.
+>
+>Do Not Grow Weary
+>
+>[3] Consider him who endured from sinners such hostility against himself, >so that you may not grow weary or fainthearted. (ESV)
 
-[1] Therefore, since we are surrounded by so great a cloud of witnesses, let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, [2] looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God.
 
-Do Not Grow Weary
-
-[3] Consider him who endured from sinners such hostility against himself, so that you may not grow weary or fainthearted. (ESV)
-```
+That series of emotions I felt—sympathy, pity and anger turning into determination—is what 
