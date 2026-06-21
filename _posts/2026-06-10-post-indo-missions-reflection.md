@@ -3,6 +3,7 @@ title: A cloud of witnesses – some thoughts after Indonesia missions
 layout: post
 author: Stephen Quiton
 tags: [ministry, missions]
+dropcap: true
 ---
 
 I recently went on a 10-day mission trip to Indonesia. This post is not meant to be an extensive summary of the trip, but to focus on a specific concept that was revealed to me throughout the 10 days I was there.
