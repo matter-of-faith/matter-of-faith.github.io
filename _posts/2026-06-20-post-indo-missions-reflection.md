@@ -20,13 +20,9 @@ It was such a strange, confusing emotion for me to process, so I mainly kept qui
 
 > Hebrews 12:1–3
 >
->Jesus, Founder and Perfecter of Our Faith
->
 >[1] Therefore, since we are surrounded by so great a cloud of witnesses let us also lay aside every weight, and sin which clings so closely, and let us run with endurance the race that is set before us, [2] looking to Jesus, the founder and perfecter of our faith, who for the joy that was set before him endured the cross, despising the shame, and is seated at the right hand of the throne of God.
 >
->Do Not Grow Weary
->
->[3] Consider him who endured from sinners such hostility against himself, >so that you may not grow weary or fainthearted. (ESV)
+>[3] Consider him who endured from sinners such hostility against himself, sothat you may not grow weary or fainthearted. (ESV)
 
 
 That series of emotions I felt—sympathy, pity and anger turning into determination—is what it means to be surrounded by that great cloud of witnesses in verse 1. The Indonesian ministry, with their stories of faith and perseverance amidst hostility, was witnessing to me. That anger and pity I felt for them and the subsequent motivation to not waste my life was the Holy Spirit ministering to me, breathing life into me again, reminding me to never lose heart and to keep moving forward.
